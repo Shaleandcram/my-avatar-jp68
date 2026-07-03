@@ -1,4 +1,4 @@
-#  
+#  my avatar hidden Script is the best my avatar Script, featuring invisibility and one-hit kill. Safe and powerful for all your needs.
 
 
 
